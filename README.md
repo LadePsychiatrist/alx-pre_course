@@ -1,1 +1,1 @@
-my first readme
+The Gospel of Jesus Christ
